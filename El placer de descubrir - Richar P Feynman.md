@@ -1,4 +1,4 @@
-# El placer de descubrir - Richar P. Feynman
+# El placer de descubrir - Richard P. Feynman
 
 ## **Una recopilación de notas y comentarios que personalmente me parecieron interesantes**
 
